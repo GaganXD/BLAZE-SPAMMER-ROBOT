@@ -2,7 +2,7 @@
 # 𝚃𝙷𝙴 𝙱𝙻𝙰𝚉𝙴 𝚂𝙿𝙰𝙼𝙼𝙴𝚁 
 
 <p align="center">
-  <img src="https://telegra.ph/file/2815f99a6d1387829fe87.jpg">
+  <img src="https://telegra.ph/file/7fc52a40794ecbf96af63.jpg">
 </p>
 
 __________________________________
@@ -12,7 +12,7 @@ __________________________________
 
 __________________________________
 
-#### ρσωєя∂ ʙꪗ:- 【 [✘ɪ𝚃𝚜•𓆩𝙶𝚊𝙶𝚊𝚗𓆪‌•xD✘](https://t.me/BLAZE_SPAMMER) 】
+#### ρσωєя∂ ʙꪗ:- 【 [✘ɪ𝚃𝚜•𓆩𝙶𝚊𝙶𝚊𝚗𓆪‌•xD✘](https://t.me/LofiLifeXd) 】
 
 
 #### ✰.ᴏᴛʜᴇʀ ᴡɪᴛʜ sᴏᴍᴇ ᴍɪsғᴜɴᴛɪᴏɴɪɴɢ ʙʀᴀɪɴ sᴛᴀʏ ᴏᴜᴛ ᴛʜɪs sᴜᴘᴇʀ ᴍᴀʜᴀsᴘᴀᴍ ʀᴏʙᴏᴛ
@@ -21,7 +21,7 @@ __________________________________
 ## 🚀 𝐃ερℓσү ση нεяσкυ 
 
 
-[![Deploy](https://telegra.ph/file/b1b3358ee6096d4750b82.jpg)](https://heroku.com/deploy?template=https://github.com/TEAM-BLAZ/blaze)
+[![Deploy](https://telegra.ph/file/7fc52a40794ecbf96af63.jpg)](https://heroku.com/deploy?template=https://github.com/TEAM-BLAZ/blaze)
  
 __________________________________
 # [sтяιηg sεssιση](https://replit.com/@TCeReaLkiller/BLAZE-SPAMMER)
